@@ -6,6 +6,7 @@
 
 ### Suggestions
 *All suggestions related to improvement in my approach to contribute to the developer community are welcome :)*
+
 *Alone I may fall, but together we rise!*
 
 <img src= "https://clipartstation.com/wp-content/uploads/2017/11/group-work-clipart-4.jpg" width="350">
